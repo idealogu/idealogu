@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @idealogu
+- 👀 I’m interested in collaborate with technical minds to create the billion dollar opportunity
+- 🌱 I’m currently learning the whys of technology
+- 💞️ I’m looking to collaborate on creating a comparitive and rating tool to be used by fiduciaries
+- 📫 How to reach me via twitter @idea_logu
